@@ -75,7 +75,6 @@ J3K Technologies serves as a trusted local video surveillance company Woodstock,
 
 By combining local installation expertise with professional-grade practices, J3K Technologies supports businesses across Atlanta, Johns Creek, Duluth, Decatur, Alpharetta, and Woodstock. Our focus is on delivering surveillance systems that are reliable today and adaptable tomorrow.
 
-Organizations exploring best practices in surveillance planning and commercial security design can review additional insights at < > and < >.
 
 ---
 
